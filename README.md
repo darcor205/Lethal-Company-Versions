@@ -2,6 +2,8 @@
 There is all the lethal company versions
 
 
+# V38:
+https://mega.nz/file/gLkH3BAb#ZYm_xs3D5YHosa2vSPCapX3iVDboZeZJE69iEVrTvvI
 # V40:
 https://mega.nz/file/9eECiCCI#SQyEEcB2DYR3_0MvWIv_hlRVUDUBROg-8jQTuMNvsOI
 # V45:
